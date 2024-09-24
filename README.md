@@ -14,4 +14,5 @@ Hello and welcome in the first client with a GIANT LIST of the BEST texture pack
 
 
 
-![image](https://github.com/user-attachments/assets/9f0cbc6f-b776-49a0-96e6-abcf169df42e)
+![image](https://github.com/user-attachments/assets/f1ade870-bda1-4871-bc8d-d6126e32a20c)
+
